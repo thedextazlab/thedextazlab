@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thedextazlab
-- 👀 I’m interested in making Tanzania the new "super-power"
+- 👀 I’m interested in finding Truth
 - 🌱 I’m currently learning how to start a digital church 
 - 💞️ I’m looking to collaborate on finding the meaning of life
 - 📫 How to reach me? Google me.
